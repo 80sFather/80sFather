@@ -1,7 +1,3 @@
-<img width="213" height="226" alt="Screenshot 2026-06-13 210023" src="https://github.com/user-attachments/assets/cbe612b9-ee70-4829-91ab-ecd5da4e3b46"/>
-
-
-# Don't Question the Image it's a placeholder
 ## Physical Protector: Mr Afton / Lee (Preferably Lee)
 ### Anger Issues / Temporary Host
 ### Iwc unless Family
